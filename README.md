@@ -1,4 +1,4 @@
-## Bem-vindo! Aqui é a Chavequinha, o resultado bizarro de uma experiência maluca do Professor Girafales e do Seu Madruga após tomarem umas tequilas!: blue_heart
+## Bem-vindo! Aqui é a Chavequinha, o resultado bizarro de uma experiência maluca do Professor Girafales e do Seu Madruga após tomarem umas tequilas!
 
 
 <!--
