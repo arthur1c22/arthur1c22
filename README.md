@@ -2,7 +2,7 @@
 
 
 ![cuidado](https://github.com/user-attachments/assets/f32e62c6-d263-427d-9145-61839c48a836)
-
+https://i.pinimg.com/564x/fa/94/25/fa9425923123f56a8cea4b72ac9dda24.jpg
 <!--
 **arthur1c22/arthur1c22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
