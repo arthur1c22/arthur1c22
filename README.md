@@ -1,6 +1,8 @@
 ## Bem-vindo! Aqui é a Chavequinha, o resultado bizarro de uma experiência maluca do Professor Girafales e do Seu Madruga após tomarem umas tequilas!
 
 
+![cuidado](https://github.com/user-attachments/assets/f32e62c6-d263-427d-9145-61839c48a836)
+
 <!--
 **arthur1c22/arthur1c22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
